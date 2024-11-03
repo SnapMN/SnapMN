@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... in boxing, and coding
 - 🌱 I’m currently learning ...coding 
 - 💞️ I’m looking to collaborate on ...projects on videos games 
-- 📫 How to reach me ...6124597891
+- 📫 How to reach me ...email
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...lived in turkey for 2 years 
 
